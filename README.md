@@ -1,1 +1,1 @@
-This is a test home page, lets see how we go
+Welcome to Stratnxt, your premier destination for strategic solutions in today's dynamic business landscape. At Stratnxt, we specialize in empowering organizations to navigate and excel amidst change, offering innovative strategies tailored to your unique needs. From expense reduction to digital transformation to market expansion, our expert team is dedicated to guiding you towards sustainable growth and success. Explore our comprehensive suite of services and unlock the potential of your business with Stratnxt today.
